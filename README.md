@@ -1,0 +1,1 @@
+# Bypass-de-la-D-tection-de-Root-Android-avec-Objections
